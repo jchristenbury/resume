@@ -1,9 +1,6 @@
 # John Christenbury
 john@johnchristenburycreative.com 
 
-www.johnchristenbury.com 
-
-704.737.0729
 
 ## Experience
 
