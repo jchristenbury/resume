@@ -1,4 +1,5 @@
 # John Christenbury
+## Graphic Designer & WordPress Specialist
 john@johnchristenburycreative.com 
 
 www.johnchristenbury.com
