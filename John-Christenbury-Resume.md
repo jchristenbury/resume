@@ -8,7 +8,7 @@ www.johnchristenbury.com
 
 **Owner/Creative Director** - *John Christenbury Creative* - 6/2007 - present
 
-I provide a diverse national client base with design services that range from corporate branding, sales literature, marketing and advertising concepts, as well as custom-built WordPress driven websites. I listen and work with my clients to deliver a practical solution that works for them.
+I provide a diverse national client base with design and consultation services that range from corporate branding, sales literature, marketing and advertising concepts, as well as custom-built WordPress driven websites. I listen and work with my clients to deliver a practical solution that works for them.
 
 
 **Sr. Designer** - *RolloverSystems, Inc.* - 10/2004 - 6/2007
